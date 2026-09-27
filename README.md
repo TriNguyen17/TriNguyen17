@@ -9,6 +9,6 @@
 - 🎌 Big anime fan, always up for "just one more episode"
 - 🎧 My playlist runs on lofi and Vietnamese indie bands like **Ngọt**
 - Email: daitruongphat105@gmail.com
-
+- 🤝 I enjoy exchanging knowledge, and when something gets hard, I'm willing to dig in until I figure it out
 --- 
 🌱 *"When you don't know what you're learning, that's exactly when you're learning."*
