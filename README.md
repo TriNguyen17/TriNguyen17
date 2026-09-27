@@ -1,3 +1,5 @@
+<img src="cover.png" width="100%">
+
 ### Hi, I'm Trí 👋
 
 - 🔍 Passionate about **reverse engineering**: I love taking binaries apart to see how they really work
