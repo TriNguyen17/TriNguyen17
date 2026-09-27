@@ -10,3 +10,5 @@
 - 🎧 My playlist runs on lofi and Vietnamese indie bands like **Ngọt**
 - Email: daitruongphat105@gmail.com
 
+--- 
+🌱 *"When you don't know what you're learning, that's exactly when you're learning."*
